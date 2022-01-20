@@ -37,4 +37,4 @@
 <!--This informations ı got for today 20 January 2022 12.48
 Will get stronger <!--
 
-Gol D.Roger# Gol-D.-Roger
+Gol D.Roger
